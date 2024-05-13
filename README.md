@@ -1,0 +1,5 @@
+- #githubproject
+- My name is Adrielle and this is my small project for my work portfolio
+- All rights reserved to Adrielle Rivera
+- All of my skills and experience here is a legitimate working experience as a professional social media marketer and community manager.
+- Contact me at mr.adriellerivera@gmail.com
